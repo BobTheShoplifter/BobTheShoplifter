@@ -1,4 +1,4 @@
-### Hi, I'm Bob/Daniel 👋
+### Hi, I'm Bob/Daniel Christensen👋
 
 Here are some ways to contact me:
 
